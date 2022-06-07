@@ -1,6 +1,6 @@
 Stanislav Shkoldin
 
-Contacts
+Contacts/Discord
 
 Generic info
 
